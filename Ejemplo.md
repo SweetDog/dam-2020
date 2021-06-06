@@ -1,3 +1,0 @@
-# Documento de ejemplo
-
-
